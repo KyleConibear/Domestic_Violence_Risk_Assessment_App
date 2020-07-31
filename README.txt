@@ -15,7 +15,7 @@ At their worst, an abusive partner can ruin lives, and even assault or murder th
 The DVRAA questionnaire was written by a Canadian Police Detective with decades of experience dealing with high conflict families and abusive relationships.
 The Detective learned that good men were distinguishable from the “Creeps” that mistreat and abuse their wives and girlfriends, if you knew what to look for.
 He also recognized that many women had never been taught this skill, and could benefit from his ability to identify “Creeps”.
-The “DVRAA  isn’t just for you! Please share it with your friends, sisters or any woman you know who is involved in an intimate relationship with a man.
+The DVRAA  isn’t just for you! Please share it with your friends, sisters or any woman you know who is involved in an intimate relationship with a man.
 
 Take care, and be safe out there.
 Don’t settle.
