@@ -29,5 +29,5 @@ INSTRUCTIONS:
 2. Launch “DomesticViolenceRiskAssessmentApp.exe”
 3. Press the “Esc” key to close the application.
 
-The Domestic Violence Risk Assessment App was developed by Kyle Conibear an experience game developer specializing in Unity and object-oriented programming.
+The Domestic Violence Risk Assessment App was developed by Kyle Conibear an experience object-oriented programmer.
 You can view Kyle's Linkedin at https://www.linkedin.com/in/kyleconibear
