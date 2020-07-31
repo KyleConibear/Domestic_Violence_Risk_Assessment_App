@@ -1,5 +1,5 @@
 Domestic Violence Risk Assessment App (DVRAA) Introduction:
-Every woman needs to be able to identify and high risk partners!
+Every woman needs to be able to identify a high risk partners!
 Imagine walking through a jungle, and no one has ever taught you which plants are safe to eat, or what a snake looks like, or that tigers bite.
 Dangerous? Absolutely!
 That’s what it’s like for any woman walking through the dating jungle today.
